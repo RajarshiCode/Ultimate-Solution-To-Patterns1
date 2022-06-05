@@ -1,1 +1,1 @@
-# Ultimate-Solution-To-Patterns1
+# Ultimate-Solution-To-Patterns
